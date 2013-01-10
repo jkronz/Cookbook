@@ -1,6 +1,10 @@
 Ted Allen's Grilled Steak with Roasted Jalapeño Chimichurri
 ===========================================================
-*__Serves:__ 4* *__Time:__ 30 minutes*
+[Serious Eats](http://www.seriouseats.com/recipes/2012/05/ted-allens-grilled-steak-with-roasted-jalepeno.html)
+
+*__Serves:__ 4* 
+
+*__Time:__ 30 minutes*
 
 ##Ingredients
 
